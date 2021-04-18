@@ -1,4 +1,4 @@
-### Welcome :poop:
+### Welcome 
 
 
 - 🔭 I'm working on myself now :clown_face:
