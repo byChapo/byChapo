@@ -8,4 +8,5 @@
 - 💬 Ask me about what interests you :beers:
 - 📫 How to reach me: Minsk, any cafe where there is a charge :zap:
 - ⚡ Fun fact: I like cucumbers with sugar  :boom: 
-
+https://www.instagram.com/og.slava/
+https://t.me/OGChapo
